@@ -1,38 +1,38 @@
 # juzicloud桔子云官网地址
 
-最新地址：[juzi1111.xyz](https://juzi1111.xyz/auth/register?code=sIUI)
+最新地址：[juziyun886.net](https://juziyun886.net/auth/register?code=sIUI)
 
 以下均是桔子云最新官网地址：
 
-*   [https://juzi1111.com](https://juzi1111.com/auth/register?code=sIUI)
-*   [https://juzi1111.net](https://juzi1111.net/auth/register?code=sIUI)
-*   [https://juzi1111.xyz](https://juzi1111.xyz/auth/register?code=sIUI)
-*   [https://juziyun00.com](https://juziyun00.com/auth/register?code=sIUI)
+*   [https://juzi610.com](https://juzi610.com/auth/register?code=sIUI)
+*   [https://juzi610.net](https://juzi610.net/auth/register?code=sIUI)
+*   [https://juzi610.xyz](https://juzi610.xyz/auth/register?code=sIUI)
+*   [https://juzi616.com](https://juzi616.com/auth/register?code=sIUI)
 *   [https://juziyun00.net](https://juziyun00.net/auth/register?code=sIUI)
 *   [https://juziyun00.top](https://juziyun00.top/auth/register?code=sIUI)
-*   [https://juziyun00.xyz](https://juziyun00.xyz/auth/register?code=sIUI)
-*   [https://juziyun101.com](https://juziyun101.com/auth/register?code=sIUI)
+*   [https://juzi616.net](https://juzi616.net/auth/register?code=sIUI)
+*   [https://juzi616.xyz](https://juzi616.xyz/auth/register?code=sIUI)
 *   [https://juziyun101.net](https://juziyun101.net/auth/register?code=sIUI)
-*   [https://juziyun101.xyz](https://juziyun101.xyz/auth/register?code=sIUI)
-*   [https://juziyun69.com](https://juziyun69.com/auth/register?code=sIUI)
-*   [https://juziyun69.net](https://juziyun69.net/auth/register?code=sIUI)
+*   [https://juzi618.com](https://juzi618.com/auth/register?code=sIUI)
+*   [https://juzi618.net](https://juzi618.net/auth/register?code=sIUI)
+*   [https://juzi618.xyz](https://juzi618.xyz/auth/register?code=sIUI)
 *   [https://juziyun69.top](https://juziyun69.top/auth/register?code=sIUI)
 *   [https://juziyun69.xyz](https://juziyun69.xyz/auth/register?code=sIUI)
 *   [https://juziyun886.com](https://juziyun886.com/auth/register?code=sIUI)
 *   [https://juziyun886.net](https://juziyun886.net/auth/register?code=sIUI)
 *   [https://juziyun886.top](https://juziyun886.top/auth/register?code=sIUI)
-*   [https://juziyun886.xyz](https://juziyun886.xyz/auth/register?code=sIUI)
-*   [https://juziyun889.com](https://juziyun889.com/auth/register?code=sIUI)
-*   [https://juziyun889.net](https://juziyun889.net/auth/register?code=sIUI)
-*   [https://juziyun889.top](https://juziyun889.top/auth/register?code=sIUI)
+*   [https://juzi619.com](https://juzi619.com/auth/register?code=sIUI)
+*   [https://juzi619.net](https://juzi619.net/auth/register?code=sIUI)
+*   [https://juzi619.xyz](https://juzi619.xyz/auth/register?code=sIUI)
+*   [https://juzi816.com](https://juzi816.com/auth/register?code=sIUI)
 *   [https://juziyun889.xyz](https://juziyun889.xyz/auth/register?code=sIUI)
-*   [https://juzi889.com](https://juzi889.com/auth/register?code=sIUI)
-*   [https://juzi889.net](https://juzi889.net/auth/register?code=sIUI)
-*   [https://juzi911.com](https://juzi911.com/auth/register?code=sIUI)
+*   [https://juzi816.net](https://juzi816.net/auth/register?code=sIUI)
+*   [https://juzi816.xyz](https://juzi816.xyz/auth/register?code=sIUI)
+*   [https://juzi818.com](https://juzi818.com/auth/register?code=sIUI)
 *   [https://juzi911.net](https://juzi911.net/auth/register?code=sIUI)
-*   [https://juzi80.com](https://juzi80.com/auth/register?code=sIUI)
-*   [https://juzi80.net](https://juzi80.net/auth/register?code=sIUI)
-*   [https://juzi90.net](https://juzi90.net/auth/register?code=sIUI)
+*   [https://juzi818.net](https://juzi818.net/auth/register?code=sIUI)
+*   [https://juzi818.xyz](https://juzi818.xyz/auth/register?code=sIUI)
+*   [https://juzi819.com](https://juzi819.com/auth/register?code=sIUI)
 *   [https://juzi12.com](https://juzi12.com/auth/register?code=sIUI)
 *   [https://juzi770.com](https://juzi770.com/auth/register?code=sIUI)
 *   [https://juzi770.net](https://juzi770.net/auth/register?code=sIUI)
@@ -45,7 +45,7 @@
 
 ## 桔子云优惠码
 
-一年、二年，8折优惠码：[q8866](https://juzi1111.xyz/auth/register?code=sIUI)
+一年、二年，7折优惠码：[SS1111](https://juziyun886.net/auth/register?code=sIUI)
 
 注：如果您现在已有套餐，可以到首页点升级套餐在使用优惠码购买。
 
