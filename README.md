@@ -1,29 +1,10 @@
 # juzicloud桔子云官网地址
 
-最新地址：[juzi101.net](https://juzihuakai.com/out/juzi)
+最新地址：[https://juziyun996.xyz](https://juzihuakai.com/out/juzi)
 
 以下均是桔子云最新官网地址：
 
-*   [https://jzy66222.xyz](https://jzy66222.xyz/auth/register?code=sIUI)
-*   [https://juziyun886.com](https://juziyun886.com/auth/register?code=sIUI)
-*   [https://juziyun69.top](https://juziyun69.top/auth/register?code=sIUI)
-*   [https://juziyun886.top](https://juziyun886.top/auth/register?code=sIUI)
-*   [https://juziyun00.top](https://juziyun00.top/auth/register?code=sIUI)
-*   [https://juzi616.xyz](https://juzi616.xyz/auth/register?code=sIUI)
-*   [https://juzi618.com](https://juzi618.com/auth/register?code=sIUI)
-*   [https://juzi610.com](https://juzi610.com/auth/register?code=sIUI)
-*   [https://juzi619.com](https://juzi619.com/auth/register?code=sIUI)
-*   [https://juzi610.xyz](https://juzi610.xyz/auth/register?code=sIUI)
-*   [https://juzi12.com](https://juzi12.com/auth/register?code=sIUI)
-*   [https://juzi770.com](https://juzi770.com/auth/register?code=sIUI)
-*   [https://juzi770.net](https://juzi770.net/auth/register?code=sIUI)
-*   [https://juzi816.com](https://juzi816.com/auth/register?code=sIUI)
-*   [https://juzi880.net](https://juzi880.net/auth/register?code=sIUI)
-*   [https://juzi991.net](https://juzi991.net/auth/register?code=sIUI)
-*   [https://juzi818.xyz](https://juzi818.xyz/auth/register?code=sIUI)
-*   [https://juzi818.com](https://juzi818.com/auth/register?code=sIUI)
-*   [https://juzi816.xyz](https://juzi816.xyz/auth/register?code=sIUI)
-*   [https://juzi819.com](https://juzi819.com/auth/register?code=sIUI)
+*   [https://juziyun996.xyz](https://juziyun996.xyz/auth/register?code=sIUI)
 
 ## 简介
 
