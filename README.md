@@ -1,10 +1,12 @@
 # juzicloud桔子云官网地址
 
-最新地址：[https://juziyun996.xyz](https://juzihuakai.com/out/juzi)
+跳转直达地址：[桔子云官网](https://juzihuakai.com/out/juzi)
 
-以下均是桔子云最新官网地址：
+以下均是桔子云最新官网地址直链：
 
 *   [https://juziyun996.xyz](https://juziyun996.xyz/auth/register?code=sIUI)
+
+*   [https://juzi9080.com](https://juzi9080.com/auth/register?code=sIUI)
 
 ## 简介
 
@@ -12,7 +14,7 @@
 
 ## 桔子云优惠码
 
-桔子云2024年春节优惠包年69折优惠码：[juzi](https://juzihuakai.com/out/juzi)
+桔子云2024年最新优惠包年8折优惠码：[C80](https://juzihuakai.com/out/juzi)
 
 注：如果您现在已有套餐，可以到首页点升级套餐在使用优惠码购买。
 
