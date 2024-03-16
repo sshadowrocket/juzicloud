@@ -4,9 +4,9 @@
 
 以下均是桔子云最新官网地址直链：
 
-*   [https://juziyun996.xyz](https://juziyun996.xyz/auth/register?code=sIUI)
+*   [https:/juziyun808.xyz](https:/juziyun808.xyz/auth/register?code=sIUI)
 
-*   [https://juzi9080.com](https://juzi9080.com/auth/register?code=sIUI)
+*   [https://juziyun808.com](https://juziyun808.com/auth/register?code=sIUI)
 
 ## 简介
 
